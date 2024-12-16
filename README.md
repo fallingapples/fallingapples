@@ -1,5 +1,7 @@
 
 <p align="center">
-  <img src="https://64.media.tumblr.com/737c3249d20d4c9a6f61eea707d87fd6/a5f6fdde0443fd46-ed/s250x400/689d46fe8843ae8225b9a61c4beabe69f3713333.gifv" width="300" title="">
+  <img src="https://64.media.tumblr.com/f04d2340b39aee1ecec6f9dd0d236cf4/87121c68522c0be2-b7/s100x200/f0f7884d7c0e69efad658bbbba8d128d036a23d1.gifv" width="300" title="">
   <p align="center">
 </p>
+<p align="center">
+Check out my rentry for more info.
