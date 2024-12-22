@@ -4,4 +4,4 @@
   <p align="center">
 </p>
 <p align="center">
-Check out my rentry for more info!
+
