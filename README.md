@@ -4,4 +4,4 @@
   <p align="center">
 </p>
 <p align="center">
-C + H welcome, don't copy. Whisper to interact, I'm mostly off-tab.
+C + H welcome, don't copy my ponies please. Whisper to interact, I'm mostly off-tab.
